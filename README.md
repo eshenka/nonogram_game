@@ -1,0 +1,1 @@
+Nonograme game for true enjoyers
